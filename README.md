@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @3DsSsS
-- 👀 I’m interested in Roblox Exploiting snd 3DS modding
+- 👀 I’m interested in Roblox Exploiting and 3DS modding
 - 🌱 I’m learning english (im spanish)
 - 💻 I’m a Roblox exploiter
 
